@@ -20,7 +20,7 @@
 
 🎮 - Sou gamer, adoro jogos do tipo FPS, também curto um MMORPG.
 
-✈️ - Para quem não sabe, também sou piloto de avião! Amo voar, tenho como paixão! 
+✈️ - Para quem não sabe, também sou piloto de avião! Amo voar, é uma das minhas maiores paixões! 
 Curiosidade: tenho as licenças de Piloto Privado, Piloto Comercial e sou habilitado a ser Instrutor de Voo, voar aeronaves mono/multimotoras e voo por instrumento.
 
 📘 - Se quiser falar comigo entre em contato via Linkedin: https://www.linkedin.com/in/diegomiyabara. Ou nas redes sociais facebook e instagram pelo nome Diego Miyabara! Estarei aguardando o seu contato!
