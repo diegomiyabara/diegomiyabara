@@ -4,6 +4,8 @@
 
 🎓 - Atualmente estou fazendo o curso de Web Full Stack da Labenu. (https://www.labenu.com.br). Sou fluente em Inglês, intermediário em Espanhol,  também falo um pouco de Francês e Japonês.
 
+🎓 - Sou bacharel em Administração, Ciências Aeronáuticas e tenho MBA em Gestão Aeroportuária.
+
 👔 - No meu repósitório você irá encontrar alguns dos projetos que estou desenvolvendo no curso e projetos pessoais. Desta maneira você poderá ter uma idéia melhor de como é o meu trabalho, e um pouco da minha evolução na área de desenvolvimento Web!
 
 💎 - As tecnologias que eu aprendi até agora são: HTML, CSS, Javascript, Node.js e React.js no módulo de FrontEnd. Estou iniciando o módulo de BackEnd para me tornar full stack!
